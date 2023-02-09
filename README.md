@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NavSanya
-- 👀 I’m interested in reading, anime, and turkish series
+- 👀 I’m interested in reading, anime
 - 🌱 I’m currently learning Master's of Science, Computer Science at USC
 - 📫 How to reach me navsanyanand@gmail.com
 
